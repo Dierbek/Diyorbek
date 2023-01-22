@@ -1,1 +1,1 @@
-# 👋 𝙷𝚎𝚕𝚕𝚘! 𝙸'𝚖 Diyorbek
+#                                                             👋 𝙷𝚎𝚕𝚕𝚘! 𝙸'𝚖 Diyorbek
